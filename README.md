@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on creating things that improve efficiency and is fun.
 - 📫 How to reach me would be through my email brianreyfuentesvargas@gmail.com, (please don't spam)
 - 😄 Pronouns: Just he/him/his
-- ⚡ Fun fact: I love to sing and listent to music.
+- ⚡ Fun fact: I love to sing and listen to music.
 
 <!---
 Yanitoy/Yanitoy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
