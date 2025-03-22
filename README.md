@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Yanitoy
 - 👀 I’m interested in many stuff, almost anything.
-- 🌱 I’m currently learning everything. I'm curious as a cat.
+- 🌱 I’m currently learning everything. I'm as curious as a cat.
 - 💞️ I’m looking to collaborate on creating things that improve efficiency and is fun.
 - 📫 How to reach me would be through my email brianreyfuentesvargas@gmail.com, (please don't spam)
 - 😄 Pronouns: Just he/him/his
